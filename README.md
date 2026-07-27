@@ -1,2 +1,0 @@
-# Stina Drill Portfolio
-
